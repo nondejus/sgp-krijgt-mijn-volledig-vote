@@ -1,2 +1,5 @@
-# sgp-krijgt-mijn-volledig-vote
-omdat death penalty in nederland al sind 2002 worden uitgevierd
+----------------------------------
+| sgp-krijgt-mijn-volledige-vote |
+----------------------------------
+
+omdat de death penalty in nederland al sinds 2002 worden uitgevierd door zorg partijen op een hele vuile en smerige manier
